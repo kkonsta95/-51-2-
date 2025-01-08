@@ -6,6 +6,7 @@
 3. Κίνητρα που ακολουθούν την οργάνωση από τις σύγχρονες κοινωνίες
 
 4. Κοινωνική άνοδο
+https://scholarworks.umass.edu/server/api/core/bitstreams/79543696-5bc2-4c9e-9a7b-63eb2bdc48af/content
 
 5. Τάσεις φυγής
 
