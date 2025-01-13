@@ -15,7 +15,9 @@ https://www.sciencedirect.com/topics/social-sciences/motivation-of-tourist
 
 4. Κίνητρα που ακολουθούν την οργάνωση από τις σύγχρονες κοινωνίες
 
-5. Κοινωνική άνοδο
+Θα μπορουσα να πω εδω ποιες ειναι οι ανησυχιες των millenials και τωρα της genz?
+
+6. Κοινωνική άνοδο
 https://scholarworks.umass.edu/server/api/core/bitstreams/79543696-5bc2-4c9e-9a7b-63eb2bdc48af/content
 
 Σε αυτό το πεδίο αναλύεται ποια η σχέση του κοινωνικού στάτους με το είδος των ταξιδιωτών. Σε γενικότερο πλαίσιο, τα ταξίδια από τη μία ήπειρο στην άλλη συνδέονται με μεγαλύτερο οικονομικό στάτους, ενώ τα διεθνή ταξίδια εκφράζουν υψηλότερο οικονομικό στάτους από τα εθνικά.
@@ -32,8 +34,14 @@ https://www.researchgate.net/publication/249701095_Modeling_Iso-Ahola's_Motivati
 https://www.researchgate.net/publication/378985888_Trends_in_cultural_tourism
 
 
+https://insete.gr/wp-content/uploads/2021/12/%CE%A3%CE%95%CE%A4%CE%95_%CE%9F_%CF%84%CE%BF%CF%85%CF%81%CE%B9%CF%83%CE%BC%CF%8C%CF%82_%CF%84%CE%BF_2040-l.pdf
+
+
 Porter  and  Lawler  (1968)  discuss  both  psychological  theories  and summarize  two  further  differences.  First,  drive  theory  views  the  mag- nitude  of  the  goal,  or  its  power  to  satisfy,  as  a  source  of  general excitement.  It  increases  levels  of  activity  nonselectively.  Conversely, expectancy  theory  regards  anticipatory  knowledge  as  directing behavior  selectively.  Second,  drive  theory  hypothesizes  that  an  outcome gains  its  positive  value  through  its  potential  for  drive-reduction.  This refers  to  the  fact  that  physiological  deprivation  creates  a tension  which generates  nonselective  activity.  Associations  with  primary  reinforcers (e.g.,  food,  rest,  and  relaxation)  increase  the  value  for  rewards.  
 https://www.researchgate.net/publication/222491206_Tourism_motivation_and_expectation_formation
 
+
+για τις νεες τασεις και προοπτικες στον τουρισμο 
+https://money-tourism.gr/ellinikos-toyris-os-taseis-prooptikes-chri-atodotika-ergaleia-ependyseis/
 
 
