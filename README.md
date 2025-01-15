@@ -54,6 +54,14 @@ https://gr.boell.org/sites/default/files/2023-06/svaa-final.pdf
 
 https://www.researchgate.net/publication/251572034_E_epharmoge_ton_archon_tes_Topikes_Atzenta_21_gia_te_biosime_touristike_anaptyxe_ligotero_eunoemenon_periochon_E_periptose_ton_mikron_nesion_tou_Aigaiou_Pelagous
 
+https://insetetoolkit.gr/wp-content/uploads/2022/04/egx-biosimi-touristiki-anaptiksi-single-pages.pdf
+
+https://www.researchgate.net/publication/346563594_E_strategike_biosimes_anaptyxes_sten_Ellada_ypo_to_prisma_ton_periphereiakon_diaphoropoieseon_tes_anergias αν ανοιγει
+
+
+
+
+
 
 
 
