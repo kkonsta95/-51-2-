@@ -40,8 +40,20 @@ https://insete.gr/wp-content/uploads/2021/12/%CE%A3%CE%95%CE%A4%CE%95_%CE%9F_%CF
 Porter  and  Lawler  (1968)  discuss  both  psychological  theories  and summarize  two  further  differences.  First,  drive  theory  views  the  mag- nitude  of  the  goal,  or  its  power  to  satisfy,  as  a  source  of  general excitement.  It  increases  levels  of  activity  nonselectively.  Conversely, expectancy  theory  regards  anticipatory  knowledge  as  directing behavior  selectively.  Second,  drive  theory  hypothesizes  that  an  outcome gains  its  positive  value  through  its  potential  for  drive-reduction.  This refers  to  the  fact  that  physiological  deprivation  creates  a tension  which generates  nonselective  activity.  Associations  with  primary  reinforcers (e.g.,  food,  rest,  and  relaxation)  increase  the  value  for  rewards.  
 https://www.researchgate.net/publication/222491206_Tourism_motivation_and_expectation_formation
 
-
 για τις νεες τασεις και προοπτικες στον τουρισμο 
 https://money-tourism.gr/ellinikos-toyris-os-taseis-prooptikes-chri-atodotika-ergaleia-ependyseis/
+
+
+2ο ΣΧΕΣΗ ΤΟΠΙΚΟΤΗΤΑΣ ΚΑΙ ΒΙΩΣΙΜΗΣ ΑΝΑΠΤΥΞΗΣ
+
+Οι τοπικές κοινωνίες έχουν καθοριστικό ρόλο στη διατήρηση και προώθηση της βιώσιμης ανάπτυξης. 
+
+https://www.ekke.gr/projects/estia/gr_pages/F_synerg/Solon/Biws_Anapt_Poiot_Zwhs/Biws_Anapt_sel5-46%20.pdf
+
+https://gr.boell.org/sites/default/files/2023-06/svaa-final.pdf
+
+https://www.researchgate.net/publication/251572034_E_epharmoge_ton_archon_tes_Topikes_Atzenta_21_gia_te_biosime_touristike_anaptyxe_ligotero_eunoemenon_periochon_E_periptose_ton_mikron_nesion_tou_Aigaiou_Pelagous
+
+
 
 
