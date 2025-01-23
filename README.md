@@ -59,6 +59,13 @@ https://www.ekke.gr/projects/estia/gr_pages/F_synerg/Solon/Biws_Anapt_Poiot_Zwhs
 
 Θα εξεταστεί ένας νησιωτικός προορισμός που τους καλοκαιρινούς μήνες γνωρίζει μεγάλη επισκεψιμότητα, και είναι γεωγραφικά απομακρυσμένο από την ηπειρωτική Ελλάδα. Η βιώσιμη ανάπτυξη της Σαντορίνης έχει αποτελέσει αντικείμενο μελέτης τα τελευταία χρόνια, λόγω της πίεσης που προκαλείται από την υπερβολική αύξηση των τουριστών στο νησί. https://www.travel.gr/how_to_travel/santorini-stratigiko-schedio-gia-ti-vi/
 
+https://www.jotr.eu/index.php/volume17/172-the-contribution-of-tourism-to-local-development-thecase-of-the-island-of-santorini
+
+https://www.researchgate.net/publication/337085617_The_contribution_of_tourism_to_local_development_the_case_of_the_island_of_Santorini
+
+https://www.sciencedirect.com/science/article/abs/pii/S0045653520303118 SOS ΑΡΘΡΟ
+Υπαρχει ξεκαθαρη συσχετιση μεταξυ της επισκεψιμοτητας ενος ωριμου τουριστικου προορισμού όπως η Σαντορίνη
+
 https://gr.boell.org/sites/default/files/2023-06/svaa-final.pdf
 
 https://www.researchgate.net/publication/251572034_E_epharmoge_ton_archon_tes_Topikes_Atzenta_21_gia_te_biosime_touristike_anaptyxe_ligotero_eunoemenon_periochon_E_periptose_ton_mikron_nesion_tou_Aigaiou_Pelagous
