@@ -37,8 +37,10 @@ https://www.researchgate.net/publication/378985888_Trends_in_cultural_tourism
 https://insete.gr/wp-content/uploads/2021/12/%CE%A3%CE%95%CE%A4%CE%95_%CE%9F_%CF%84%CE%BF%CF%85%CF%81%CE%B9%CF%83%CE%BC%CF%8C%CF%82_%CF%84%CE%BF_2040-l.pdf
 
 
-Porter  and  Lawler  (1968)  discuss  both  psychological  theories  and summarize  two  further  differences.  First,  drive  theory  views  the  mag- nitude  of  the  goal,  or  its  power  to  satisfy,  as  a  source  of  general excitement.  It  increases  levels  of  activity  nonselectively.  Conversely, expectancy  theory  regards  anticipatory  knowledge  as  directing behavior  selectively.  Second,  drive  theory  hypothesizes  that  an  outcome gains  its  positive  value  through  its  potential  for  drive-reduction.  This refers  to  the  fact  that  physiological  deprivation  creates  a tension  which generates  nonselective  activity.  Associations  with  primary  reinforcers (e.g.,  food,  rest,  and  relaxation)  increase  the  value  for  rewards.  
-https://www.researchgate.net/publication/222491206_Tourism_motivation_and_expectation_formation
+
+Ο Porter και ο Lawler (1968) προβαίνουν σε δύο επιπλέον αναλύσεις όσον αφορά τα τουριστικά κίνητρα. Αρχικά η θεωρία της ορμής βλέπει το "μέγεθος του στόχου" και την επιθυμία του να τον ικανοποιήσει. Κατά δεύτερον αναφέρεται στη θεωρία τω προσδοκιών, η οποία κατευθύνει τη συμπεριφορά προς συγκεκριμένους στόχους. Η αξία του αποτελέσμτος είναι αυτή η οποία οδηγεί στις επιθυμητές συνέπειες. Η φυσική ορμή του ανθρώπου προς εξερεύνηση του αγνώστου, η τάση για φυγή, για αναψυχή, για εξερεύνηση του εαυτού, χρόνο με τους οικείους, είναι μερικά από τα κίνητρα που αναφέρονται πιο συχνά από τους τουρίστες (Porter & Lawler, 1968).
+
+Gnoth, J. (1997). Tourism motivation and expectation formation. Annals of Tourism Research, 24(2), 283-304. https://doi.org/10.1016/S0160-7383(97)80002-3
 
 για τις νεες τασεις και προοπτικες στον τουρισμο 
 https://money-tourism.gr/ellinikos-toyris-os-taseis-prooptikes-chri-atodotika-ergaleia-ependyseis/
