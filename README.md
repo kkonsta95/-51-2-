@@ -81,6 +81,12 @@ https://www.researchgate.net/publication/228003384_The_Concept_of_A_Tourist_Area
  
  https://www.researchgate.net/profile/Solene-Prince/publication/318672642_Cohen%27s_Model_of_Typologies_of_Tourists/links/614ad28ea3df59440ba151dd/Cohens-Model-of-Typologies-of-Tourists.pdf 
 
+ https://documents1.worldbank.org/curated/en/478941468168563049/pdf/684970WP00OFFI0iterature0on0Tourism.pdf sos
+
+ file:///C:/Users/siste/Downloads/7367-193-13078-1-10-20150610.pdf
+
+ 
+
 
 
 
