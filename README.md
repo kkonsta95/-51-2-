@@ -74,6 +74,13 @@ https://insetetoolkit.gr/wp-content/uploads/2022/04/egx-biosimi-touristiki-anapt
 
 https://www.researchgate.net/publication/346563594_E_strategike_biosimes_anaptyxes_sten_Ellada_ypo_to_prisma_ton_periphereiakon_diaphoropoieseon_tes_anergias αν ανοιγει
 
+3o ervthma
+
+https://www.researchgate.net/publication/228003384_The_Concept_of_A_Tourist_Area_Cycle_of_Evolution_Implications_for_Management_of_Resources 
+
+ 
+ https://www.researchgate.net/profile/Solene-Prince/publication/318672642_Cohen%27s_Model_of_Typologies_of_Tourists/links/614ad28ea3df59440ba151dd/Cohens-Model-of-Typologies-of-Tourists.pdf 
+
 
 
 
