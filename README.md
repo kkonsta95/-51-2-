@@ -58,8 +58,11 @@ https://money-tourism.gr/ellinikos-toyris-os-taseis-prooptikes-chri-atodotika-er
 
 Η έννοια της βιωσιμότητας σχετίζεται με την αειφορία, με τις αρχές τις βιωσιμότητας να θέτουν ότι το περιβάλλον παίζει ρυθμιστικό και πρωταρχικό ρόλο στη διαχείριση των συστημάτων και στη χάραξη κατάλληλων πολιτικών. Βιωσιμότητα σε τοπικό επίπεδο σημαίνει ότι διατηρείται ο τοπικός χαρακτήρας της εκάστοτε περιοχής, καθλως η βιωσιμότητα πρέπει να είναι συνιφασμένη με τις ιδιαιτερότητες και τις ανάγκες κάθε τόπου. Τα κυριότερα ζητήματα μεταξύ τοπικότητας και βιώσιμης ανάπτυξης είναι, κατ αρχάς, η έμφαση που δίνεται η ανάπτυξη ενός τόπου να είναι σεβαστή και σύμφωνη με την προστασία του περιβάλλοντος και της βιοποικιλότητας, και κατά δεύτερον, η έμφαση στην προστασία της πολιτιστικής κληρονομιάς του τόπου. Υπολογίζοντας τη φέρουσα ικανότητα ενός προορισμού, γίνονται οι απαραίτητες μελέτες ούτως ώστε να αναπτυχθεί σε τοπικό επίπεδο η καινοτομία, η διαφοροποίηση του τουριστικού προιόντος, και η διατήρηση του ανταγωνιστικού του πλεονεκτήματος.
 https://www.ekke.gr/projects/estia/gr_pages/F_synerg/Solon/Biws_Anapt_Poiot_Zwhs/Biws_Anapt_sel5-46%20.pdf
+Η συνεργασία μεταξύ τοπικών και εθνικών φορέων είναι απαραίτητη για το σχεδιασμό και τη λήψη αποφάσεων, καθώς και για τη διαχείριση των κρίσεων. https://www.researchgate.net/publication/251572034_E_epharmoge_ton_archon_tes_Topikes_Atzenta_21_gia_te_biosime_touristike_anaptyxe_ligotero_eunoemenon_periochon_E_periptose_ton_mikron_nesion_tou_Aigaiou_Pelagous
 
 Θα εξεταστεί ένας νησιωτικός προορισμός που τους καλοκαιρινούς μήνες γνωρίζει μεγάλη επισκεψιμότητα, και είναι γεωγραφικά απομακρυσμένο από την ηπειρωτική Ελλάδα. Η βιώσιμη ανάπτυξη της Σαντορίνης έχει αποτελέσει αντικείμενο μελέτης τα τελευταία χρόνια, λόγω της πίεσης που προκαλείται από την υπερβολική αύξηση των τουριστών στο νησί. https://www.travel.gr/how_to_travel/santorini-stratigiko-schedio-gia-ti-vi/
+Η Σαντορίνη ανήκει στις απομονωμένες γεωγραφικά περιοχές 
+
 
 https://www.jotr.eu/index.php/volume17/172-the-contribution-of-tourism-to-local-development-thecase-of-the-island-of-santorini
 
@@ -68,7 +71,6 @@ https://www.researchgate.net/publication/337085617_The_contribution_of_tourism_t
 https://www.sciencedirect.com/science/article/abs/pii/S0045653520303118 SOS ΑΡΘΡΟ
 Υπαρχει ξεκαθαρη συσχετιση μεταξυ της επισκεψιμοτητας ενος ωριμου τουριστικου προορισμού όπως η Σαντορίνη
 
-https://gr.boell.org/sites/default/files/2023-06/svaa-final.pdf
 
 https://www.researchgate.net/publication/251572034_E_epharmoge_ton_archon_tes_Topikes_Atzenta_21_gia_te_biosime_touristike_anaptyxe_ligotero_eunoemenon_periochon_E_periptose_ton_mikron_nesion_tou_Aigaiou_Pelagous
 
